@@ -1,1 +1,1 @@
-# Inspiration-Source
+# Some passages inspired by random ideas.
